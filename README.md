@@ -1,6 +1,4 @@
 # Wild-animals-
-It's all about bot
-
+It's all about not eligible for airdrop 
+8967 ctrl 900
 ticking sun side of the house and (12; 
-maybe 4 
-bucket list of the day of your leadership of life anu 
